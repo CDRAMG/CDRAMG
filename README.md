@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @CDRAMG
+- 👀 I’m interested in programs that promote and provide a plethora of mobility options.
+- The horse and bicycle are my preferred modes. What are yours?
